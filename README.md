@@ -1,5 +1,5 @@
 - 👋 Hi, I’m [Arqam Hussain](linkedin.com/in/arqam-hussain-b15721193)
-- 📫 Email - arqam.hussain2019@vitbhopal.ac.in
+- 📫 Email - arqam0017@gmail.com
 - 👨🏻‍💻 LinkedIn - [arqam-hussain-b15721193](linkedin.com/in/arqam-hussain-b15721193)
  
 
